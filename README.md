@@ -1,5 +1,7 @@
 # ponytown-stuff
-if u from pt read this
+anyone who comes here from pony.town ,  this is for ya
+
+• C+H is always welcome !!
 
 • Do not entirely copy my ponies unless given permission .  Major/Minor inspiration is allowed .
 
