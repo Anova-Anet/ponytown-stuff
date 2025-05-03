@@ -9,4 +9,4 @@ anyone who comes here from pony.town ,  this is for ya
 
 • Part stealers dni
 
-• If I have DNIUFP(DoNotInteractUnlessFriends/Party) ,  I mean it .
+• If I have DNIUFP(DoNotInteractUnlessFriends/Party) in my name ,  I mean it .
