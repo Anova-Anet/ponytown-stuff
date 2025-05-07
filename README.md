@@ -10,3 +10,5 @@ anyone who comes here from pony.town ,  this is for ya
 • Part stealers dni
 
 • If I have DNIUFP(DoNotInteractUnlessFriends/Party) in my name ,  I mean it .
+
+• If I unfriend you without warning ,  it's because I get nervous and start to distrust you .  If this doesn't clear it up then just ask me personally !
