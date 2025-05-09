@@ -11,4 +11,4 @@ anyone who comes here from pony.town ,  this is for ya
 
 • If I have DNIUFP(DoNotInteractUnlessFriends/Party) in my name ,  I mean it .
 
-• If I unfriend you without warning ,  it's because I get nervous and start to distrust you .  If this doesn't clear it up then just ask me personally !
+• If I unfriend you without warning ,  it's because I started to get nervous around you (or I just forgot who you are).  If this doesn't clear it up then just ask me personally !
