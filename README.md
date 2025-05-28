@@ -1,7 +1,7 @@
 # ponytown-stuff
 anyone who comes here from pony.town ,  this is for ya
 
-• C+H is always welcome !!
+• C+H is always welcome unless I have DNIUF (Do Not Interact Unless Friends) in my name
 
 • Do not entirely copy my ponies unless given permission .  Major/Minor inspiration is allowed .
 
