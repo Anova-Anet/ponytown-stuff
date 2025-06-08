@@ -1,14 +1,10 @@
 # ponytown-stuff
-anyone who comes here from pony.town ,  this is for ya
+✧ As stated on my profile, interact with caution at all times.
 
-• C+H is always welcome unless I have DNIUF (Do Not Interact Unless Friends) in my name
+-
 
-• Do not entirely copy my ponies unless given permission .  Major/Minor inspiration is allowed .
+♢ Terms I use: C+H (Cuddle+Hide), Offtab, IWC/IWEC/IWVEC (Interact With Caution/Interact With Extreme Caution/Interact With Very Extreme Caution), DNIUF (Do Not Interact Unless Friends), W2I (Whisper to Interact)
 
-• People who put boobs on their ponies get blocked instantly .
+-
 
-• Part stealers dni
-
-• If I have DNIUFP(DoNotInteractUnlessFriends/Party) in my name ,  I mean it .
-
-• If I unfriend you without warning ,  it's because I started to get nervous around you, or I just forgot who you are .  If this doesn't clear it up then just ask me on pt ,  my strawpage ,  or neospring
+✧
