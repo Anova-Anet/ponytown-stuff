@@ -7,4 +7,4 @@
 
 -
 
-✧
+✧ I have no exact place where I'll be, but I'll usually be in or around the center or docks. Sometimes I go to the Roblox/Phighting area (top left corner).
