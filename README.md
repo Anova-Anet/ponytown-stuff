@@ -15,4 +15,7 @@
 
 
 
-![Screenshot_20250615-135409~2](https://github.com/user-attachments/assets/38035155-70c4-4d1c-9c55-0ec7878bcdb3)
+↓ spots I'm usually at !  (red: least often, yellow: often, purple: favorite/most often)
+
+![Screenshot_20250615-135409~3](https://github.com/user-attachments/assets/a0ee586d-3ea8-4b84-b1a1-e63b0d9fcd11)
+
