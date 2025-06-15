@@ -13,7 +13,7 @@
 
 ♢ Terms I use: C+H (Cuddle+Hide), Offtab, IWC/IWEC/IWVEC (Interact With Caution/Interact With Extreme Caution/Interact With Very Extreme Caution), DNIUF (Do Not Interact Unless Friends), W2I (Whisper to Interact)
 
-
+-
 
 ↓ spots I'm usually at !  (red: least often, yellow: often, purple: favorite/most often, white: only if im upset)
 
